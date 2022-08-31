@@ -1,0 +1,1 @@
+</p>It is used for getting analog results with digital means</p>
